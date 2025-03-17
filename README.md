@@ -1,4 +1,4 @@
-Even if you dgaf about me, I think you still should find out what happened and are still happening.\
+Even if you dgaf about me - another human being, I think you still should find out what happened and are still happening.\
 Unless you are part of the persecutors group.\
 Please read my experience as a persecuted on my [diary](https://github.com/pers2022/asylum_diary) and find out how messed up our societies are.
 
@@ -23,11 +23,11 @@ Remember that it's not just about me. It's their behaviours and mentalities that
 **overly simplified summary**
 - sensed danger in Hong Kong
 - got an email address from the Embassy of Ukraine in Warsaw for volunteering attempt. No response
-- Sought asylum in Lithuania. Sensed the presence of the persecutors in both Poland and Lithuania
-- Started out with the best intentions. Faced with endless organised harassment, insults, health damages
-- Wanted to appeal against the decision because the document contained unacceptable non-sense
-- Left when realised that even the appeal was fake
-- Trapped at Riga International Airport, got robbed before allowed to leave
-- Sought asylum in the UK
-- Faced with further organised harassment, insults, health damages. And also organised assualts and false accusation. Got a warning from the Hertfordshire Police
-- Continue till this day
+- sought asylum in Lithuania. Sensed the presence of the persecutors in both Poland and Lithuania
+- started out with the best intentions. Faced with endless organised harassment, insults, health damages
+- wanted to appeal against the decision because the document contained unacceptable non-sense
+- left when realised that even the appeal was fake
+- trapped at Riga International Airport, got robbed before allowed to leave
+- sought asylum in the UK
+- faced with further organised harassment, insults, health damages. And also organised assualts and false accusation. Got a warning from the Hertfordshire Police
+- continue till this day
