@@ -2,9 +2,9 @@ Even if you dgaf about me, another human being, I think you still should find ou
 Unless you are part of the persecutors group.\
 Please read my experience as a persecuted on my [diary](https://github.com/pers2022/asylum_diary) and find out how messed up our societies are.
 
-I believe the situation is that Lithuania helped the Chinese Communist Party to continue their persecution and the UK helpes them to continue.
+I think the situation is that Lithuania helped the Chinese Communist Party to continue their persecution and the UK helpes them to continue.
 
-A huge problem of the situation is that the autorities of countries as well as their lackeys, which are a huge number from all kinds of governmental or non-governmental organisation, are on the side of the persecutors
+A huge problem of the situation is that the autorities of countries as well as their lackeys, which are a huge number from all kinds of governmental or non-governmental organisation, are on the side of the persecutors.
 
 I am not asking for help anymore.\
 Of course, if the situation can change for the better, I probably will still welcome it.\
