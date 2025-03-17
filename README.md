@@ -20,6 +20,16 @@ Remember that it's not just about me. It's their behaviours and mentalities that
 
 ---
 
+**some of the things I am faced with in the UK (many of them also happened before I came to the UK)**
+- letters and packages are intercepted
+- authorities such as police are not helping. Quite the opposite, I have been arrested under absurd circumstances.
+- under extreme surveillance
+- privacy and information are disclosed for fun and for facilitating stalking, harassment and assualts.
+- frequently get drugged or put under various effects with other means
+- cannot get any proper information. Cannot get proper responses anywhere.
+
+---
+
 **overly simplified summary**
 - sensed danger in Hong Kong
 - got an email address from the Embassy of Ukraine in Warsaw for volunteering attempt. No response
