@@ -1,4 +1,4 @@
-Even if you dgaf about me - another human being, I think you still should find out what happened and are still happening.\
+Even if you dgaf about me, another human being, I think you still should find out what happened and are still happening.\
 Unless you are part of the persecutors group.\
 Please read my experience as a persecuted on my [diary](https://github.com/pers2022/asylum_diary) and find out how messed up our societies are.
 
