@@ -1,18 +1,22 @@
-Even if you dgaf about me, I think you still should find out what happened and are still happening.<br>
-Unless you are part of the persecutors group.<br>
-Please read my experience as a persecuted on my [diary](https://github.com/pers2022/asylum_diary) and find out how messed up our societies are.<br>
+Even if you dgaf about me, I think you still should find out what happened and are still happening.\
+Unless you are part of the persecutors group.\
+Please read my experience as a persecuted on my [diary](https://github.com/pers2022/asylum_diary) and find out how messed up our societies are.
 
-I believe the situation is that Lithuania helped the Chinese Communist Party to continue their persecution and the UK helpes them to continue.<br>
+I believe the situation is that Lithuania helped the Chinese Communist Party to continue their persecution and the UK helpes them to continue.
 
-A huge problem of the situation is that the autorities of countries as well as their lackeys, which are a huge number from all kinds of governmental or non-governmental organisation, are on the side of the persecutors.<br>
+A huge problem of the situation is that the autorities of countries as well as their lackeys, which are a huge number from all kinds of governmental or non-governmental organisation, are on the side of the persecutors
 
 I am not asking for help anymore.\
 Of course, if the situation can change for the better, I probably will still welcome it.\
-But I don't even know how anyone can help.<br>
-Nor do I feel that "after" is a thing.<br>
-But I believe those who are not part of the persecution group need to know this.<br>
-Think about how all that I wrote at https://github.com/pers2022/asylum_diary became possiblle.<br>
-Think about what implications there are.<br>
+But I don't even know how anyone can help.\
+Nor do I feel that "after" is a thing.\
+But I believe those who are not part of the persecution group need to know this.\
+Think about how all that I wrote at https://github.com/pers2022/asylum_diary became possiblle.\
+Think about what implications there are.
+
+Not only am I, a nobody, under an absurdly extreme surveillance. An absurd number of them stalk, harass and smear me everywhere.
+I do not doubt that they have a number of narratives. I do not doubt they can paint me in bad colours. I do not doubt they ruin my life. They already did. Even my health is already ruined.\
+Remember that it's not just about me. It's their behaviours and mentalities that you should think about.
 
 ---
 
