@@ -2,7 +2,7 @@ Even if you dgaf about me, another human being, I think you still should find ou
 Unless you are part of the persecutors group.\
 Please read my experience as a persecuted on my [diary](https://github.com/pers2022/asylum_diary) and find out how messed up our societies are.
 
-Please don't look away because there are others looking into the matters, even if they are the authorities. The persecutors have immense influence and number. The ones you see looking into the matter might be the persecutors.\
+Please don't look away because there are others looking into the matters, even if they are the authorities. The persecutors have immense influence and number. There is a high chance that the ones you see looking into the matter are those of the persecutors group.\
 I want the attention of every one that are not of the persecutors group.\
 And every one of you need to know what is happening.
 
