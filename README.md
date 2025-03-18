@@ -20,7 +20,7 @@ Think about how all that I wrote at https://github.com/pers2022/asylum_diary bec
 Think about what implications there are.
 
 Not only am I, a nobody, under an absurdly extreme surveillance. An absurd number of them stalk, harass and smear me everywhere.
-I do not doubt that they have a number of narratives. I do not doubt they can paint me in bad colours. I do not doubt they ruin my life. They already did. Even my health is already ruined.\
+I do not doubt that they have their narratives to tell. I do not doubt they can paint me in bad colours. I do not doubt they can ruin my life. They already did. Even my health is already ruined.\
 Remember that it's not just about me. It's their behaviours and mentalities that you should think about.
 
 ---
@@ -31,7 +31,7 @@ Remember that it's not just about me. It's their behaviours and mentalities that
 - under extreme surveillance
 - privacy and information are disclosed for fun and for facilitating stalking, harassment and assualts.
 - frequently get drugged or put under various effects with other means
-- cannot get any proper information. Cannot get proper responses anywhere.
+- cannot get any proper information, not even some very basic information about my situation. Cannot get proper responses anywhere.
 
 ---
 
@@ -40,7 +40,7 @@ Remember that it's not just about me. It's their behaviours and mentalities that
 - got an email address from the Embassy of Ukraine in Warsaw for volunteering attempt. No response
 - sought asylum in Lithuania. Sensed the presence of the persecutors in both Poland and Lithuania
 - started out with the best intentions. Faced with endless organised harassment, insults, health damages
-- wanted to appeal against the decision because the document contained unacceptable non-sense
+- wanted to appeal against the decision because the document contained unacceptable non-senses
 - left when realised that even the appeal was fake
 - trapped at Riga International Airport, got robbed before allowed to leave
 - sought asylum in the UK
