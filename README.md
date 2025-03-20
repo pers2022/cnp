@@ -1,4 +1,4 @@
-Since all my incoming and outgoing communication or more generally information is intercepted and I can only get bullshit wherever I try.  And I am not resourceful to begin with, the full extent of their doings is not knowable to me. It is up to someone capable to find out everything.
+Since all my incoming and outgoing communication, or more generally, information, is intercepted and I can only get bullshit wherever I try. And I am not resourceful to begin with. The full extent of their doings is not knowable to me. It is up to someone capable to find out everything.
 
 Even if you dgaf about me, another human being, I think you still should find out what happened and are still happening.\
 Unless you are part of the persecutors group.\
