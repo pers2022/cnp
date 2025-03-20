@@ -1,3 +1,5 @@
+Since all my incoming and outgoing communication or more generally information is intercepted and I can only get bullshit wherever I try.  And I am not resourceful to begin with, the full extent of their doings is not knowable to me. It is up to someone capable to find out everything.
+
 Even if you dgaf about me, another human being, I think you still should find out what happened and are still happening.\
 Unless you are part of the persecutors group.\
 Please read my experience as a persecuted on my [diary](https://github.com/pers2022/asylum_diary) and find out how messed up our societies are.
@@ -30,7 +32,8 @@ Remember that it's not just about me. It's their behaviours and mentalities that
 - authorities such as police are not helping. Quite the opposite, I have been arrested under absurd circumstances.
 - under extreme surveillance
 - privacy and information are disclosed for fun and for facilitating stalking, harassment and assualts.
-- frequently get drugged or put under various effects with other means
+- frequently get drugged or put under various effects with other means.
+- Already sustained quite some damages. More than half a year since the last major damage to my respiratory system, still coughing every day. Quite sure that my long-term health is still getting damaged subtly almost every day.
 - cannot get any proper information, not even some very basic information about my situation. Cannot get proper responses anywhere.
 
 ---
