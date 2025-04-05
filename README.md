@@ -13,7 +13,7 @@ And every one of you need to know what is happening.
 
 As of today, 5 April 2025, it has been 35 months, counting only from my first applicaiton for asylum in Lithuania. 22 months in Lithuania, 13 months in the UK.
 
-There is rarely a day I don't suffer their sickness. And they are incresingly relying on things that directly cause effects on my health, including unknown substances, unknown devices and assaults.
+There is rarely a day I don't suffer their sickness. And they incresingly rely on things that directly cause effects on my health, including unknown substances, unknown devices and assaults.
 
 They absolutely know that they are commiting crimes. They are conciously preventing me from getting evidences and help, by abusing power and influence no less.
 
