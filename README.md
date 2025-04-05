@@ -1,13 +1,23 @@
-Since all my incoming and outgoing communication, or more generally, information, is intercepted and I can only get bullshit wherever I try. And I am not resourceful to begin with. The full extent of their doings is not knowable to me. It is up to someone capable to find out everything.
+Since all my incoming and outgoing communication, or more generally, information, mails and packages, are intercepted and I can only get bullshit wherever I try. And I am not resourceful to begin with. The full extent of their doings is not knowable to me. It is up to someone capable to find out everything.
 
 Even if you dgaf about me, another human being, I think you still should find out what happened and are still happening.\
 Unless you are part of the persecutors group.\
 Please read my experience as a persecuted on my [diary](https://github.com/pers2022/asylum_diary) and find out how messed up our societies are.
 
-Please don't look away because there are others looking into the matters, even if they are the authorities. The persecutors have immense influence and number. There is a high chance that the ones you see looking into the matter are those of the persecutors group.\
+Please don't stop looking because there are others looking into the matters, even if they are the authorities. The persecutors have immense influence and number. There is a high chance that the ones you see looking into the matter are those of the persecutors group.\
+Please keep in mind that their influence is very wide-reaching, basically everywhere. To the point I don't know if my entries reach anyone other than their accomplices. Not only that I have been stalked everywhere, I haven't been able to reach any one who didn't join the persecution without a question.\
+Don't easily believe a narrative simply because someone, be it a group of seemingly random people or an well-known organisation, including huge corporations, NGOs and authorities, tells you a narrative.\
+You can doubt my narrative. In fact, it's good that you doubt, but make sure to doubt theirs, too.\
 I want the attention of every one that are not of the persecutors group.\
 And every one of you need to know what is happening.
 
+As of today, 5 April 2025, it has been 35 months, counting only from my first applicaiton for asylum in Lithuania. 22 months in Lithuania, 13 months in the UK.
+
+There is rarely a day I don't suffer their sickness. And they are incresingly relying on things that directly cause effects on my health, including unknown substances, unknown devices and assaults.
+
+They absolutely know that they are commiting crimes. They are conciously preventing me from getting evidences and help, by abusing power and influence no less.
+
+I know it sounds crazy that so many people and groups are involved. As the victim I hope that what I am talking about is not true. But months after months, years after years, I can't see how it can be false anymore.
 
 I think the situation is that Lithuania helped the Chinese Communist Party to continue their persecution and the UK helpes them to continue.
 
@@ -29,12 +39,13 @@ Remember that it's not just about me. It's their behaviours and mentalities that
 
 **some of the things I am faced with in the UK (many of them also happened before I came to the UK)**
 - letters and packages are intercepted
+- cannot get any proper information, not even some very basic information about my situation. Cannot get proper responses anywhere.
 - authorities such as police are not helping. Quite the opposite, I have been arrested under absurd circumstances.
 - under extreme surveillance
 - privacy and information are disclosed for fun and for facilitating stalking, harassment and assualts.
+- assaults, it's not mistyped or something else.
 - frequently get drugged or put under various effects with other means.
 - Already sustained quite some damages. More than half a year since the last major damage to my respiratory system, still coughing every day. Quite sure that my long-term health is still getting damaged subtly almost every day.
-- cannot get any proper information, not even some very basic information about my situation. Cannot get proper responses anywhere.
 
 ---
 
