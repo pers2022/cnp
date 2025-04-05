@@ -4,6 +4,19 @@ Even if you dgaf about me, another human being, I think you still should find ou
 Unless you are part of the persecutors group.\
 Please read my experience as a persecuted on my [diary](https://github.com/pers2022/asylum_diary) and find out how messed up our societies are.
 
+---
+
+When you read, I would like you to keep some things in mind.
+- if you are able to look into the matter, be careful of reverse causality.
+- I offered the best of mine. I had their interest on my mind and gave it much thoughts. I still remember the first thing I said in my asylum application was that I was sorry that I needed to apply for asylum and that I wasn't there to take their resources. Even for my plan work and continue studying, which would in turn enable me to better contribute, I phrased it as needed to use their educational resources and a job opportunity.
+- Although the persecutors gives me mockeries in return. Fact is that I tried to volunteer for Ukraine, knowing full well that I had no experience of war and might not be able to do much, while fully awared of the danger.
+- I was denied information and harassed and more since the beginning. And more and more as time passed.
+- I hoped that Lithuania was not that much involved and would put a stop to the madness. Months after months, a year after another I waited. It only got worse. Same for the UK later.
+- I have only been able to get bullshit, no matter what I do or do not do.
+- I would be honest that my sentiment cannot remain what it was. It's impossible. I have been denied even the information about my situation like I am not a human, insulted, put under effects, including health damages, against my will and later assaulted.
+
+---
+
 Please don't stop looking because there are others looking into the matters, even if they are the authorities. The persecutors have immense influence and number. There is a high chance that the ones you see looking into the matter are those of the persecutors group.\
 Please keep in mind that their influence is very wide-reaching, basically everywhere. To the point I don't know if my entries reach anyone other than their accomplices. Not only that I have been stalked everywhere, I haven't been able to reach any one who didn't join the persecution without a question.\
 Don't easily believe a narrative simply because someone, be it a group of seemingly random people or an well-known organisation, including huge corporations, NGOs and authorities, tells you a narrative.\
