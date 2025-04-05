@@ -7,7 +7,7 @@ Please read my experience as a persecuted on my [diary](https://github.com/pers2
 Please don't stop looking because there are others looking into the matters, even if they are the authorities. The persecutors have immense influence and number. There is a high chance that the ones you see looking into the matter are those of the persecutors group.\
 Please keep in mind that their influence is very wide-reaching, basically everywhere. To the point I don't know if my entries reach anyone other than their accomplices. Not only that I have been stalked everywhere, I haven't been able to reach any one who didn't join the persecution without a question.\
 Don't easily believe a narrative simply because someone, be it a group of seemingly random people or an well-known organisation, including huge corporations, NGOs and authorities, tells you a narrative.\
-You can doubt my narrative. In fact, it's good that you doubt, but make sure to doubt theirs, too.\
+You can doubt my narrative. In fact, it's good that you doubt, just make sure to doubt theirs, too.\
 I want the attention of every one that are not of the persecutors group.\
 And every one of you need to know what is happening.
 
